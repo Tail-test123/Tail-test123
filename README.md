@@ -7,4 +7,9 @@
 ### loading...
 ### Completed
 ## *Coisas que eu gosto:*
-- Jogar
+- Jogar :video_game: :headphones:
+(Roblox, Rocket League e Multiversus...)
+- Ouvir música :musical_note: :notes:
+(Hajime Kashimo | Eletricidade | AniRap)
+
+-
