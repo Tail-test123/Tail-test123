@@ -12,5 +12,3 @@
 (Roblox, Rocket League e Multiversus...)
 - Ouvir música :musical_note: :notes:
 (Hajime Kashimo | Eletricidade | AniRap)
-
--
