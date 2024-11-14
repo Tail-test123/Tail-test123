@@ -10,7 +10,8 @@
 :warning: Conta criada para test :warning:
 ---
 # *Coisas favoritas:*
-- Jogar :video_game: :headphones:
-(Roblox, Rocket League e Multiversus...)
-- Ouvir música :musical_note: :notes:
-(Hajime Kashimo | Eletricidade | AniRap)
+- Jogos :video_game: :headphones:
+(Roblox, Minecraft e Fears to Fathom)
+- Músicas :musical_note: :notes:
+- YouTubers :movie_camera:
+(Fyori, Sim Sou Silva e Humbled)
